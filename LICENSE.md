@@ -1,4 +1,4 @@
-# 
+# vip Script for ink game is the best ink game Script, featuring auto-upgrade and private server access. Safe and powerful for all your needs.
 
 
 
